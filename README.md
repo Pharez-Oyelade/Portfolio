@@ -35,4 +35,4 @@ Here are some of the projects I've worked on:
 I'm always open to new opportunities and collaborations. Feel free to reach out to me via:
 
 - Email: [pharezoyelade@gmail.com]
-- [https://x.com/Pharez_Oye] (or any other relevant social media)
+- [https://x.com/Pharez_Oye] 
